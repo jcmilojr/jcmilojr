@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jcmilojr
-- 👀 I’m interested in video games 🎮
+- 👀 I’m interested in video games 🎮 & coffee ☕️
 - 📫 How to reach me: jjimenez@abatechnology.com
 
 <!---
